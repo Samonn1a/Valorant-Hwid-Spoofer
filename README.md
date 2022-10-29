@@ -1,0 +1,2 @@
+# Valorant-Hwid-Spoofer
+WORKS ON VAC EAC VANGUARD BATTLEEYE
